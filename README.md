@@ -1,5 +1,2 @@
 # ProjectDiscuss
-this is my project
-india is democracy
-pakistan is not democracy
-America
+I'M actually the one who not the one
